@@ -1,0 +1,1 @@
+# The-prevailing-color-of-the-image
